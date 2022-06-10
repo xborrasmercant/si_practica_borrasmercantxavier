@@ -1,1 +1,1 @@
-# si_practica_borrasmercantxavier
+No he sido capaz de realizar la práctica.
